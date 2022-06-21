@@ -40,6 +40,7 @@
         - I have seen parents scare their kids with their financial situation. That is stupid. No! You are wrong it is not educational. What is the kid supposed to do? Teach about finances if you understand it if not shut up ;)
         - Think of others
         - Help others
+        - Great video: [This could be why you're depressed or anxious | Johann Hari](https://www.youtube.com/watch?v=MB5IX-np5fE)
     - **Reason:**
         - Many
 
