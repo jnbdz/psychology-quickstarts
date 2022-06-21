@@ -73,3 +73,57 @@ That being said there is fourth type. But this type is seperate because of the i
 - [Signs of child abuse and how to spot it | ABC News](https://www.youtube.com/watch?v=5F5mBsxKCgc)
 - [Child of Rage - The Full Documentary](https://www.youtube.com/watch?v=2YhxerkkHUs)
     - [Beth Thomas life story: What really happened to her and her siblings?](https://www.msn.com/en-xl/africa/other/beth-thomas-life-story-what-really-happened-to-her-and-her-siblings/ar-AAOv5ZH)
+
+## School Shootings
+With my idea of mapping *social relationships* in a school we could easily identify children and adolescence at risk of being mass killers.
+
+### What is the difference between Batman and the Joker?
+This sub-title might seem off topic at a glance.
+
+But this fiction is a great example to begin to understand the issue.
+
+Batman and the Joker have had trauma.
+
+But one became the hero (the *fourth type* bully) and the other the Joker became the psycho.
+
+But why?
+
+Simple: choice.
+
+I was tortured for a whole year.
+
+No one cared.
+
+I resented all. Just like the Joker.
+
+But.
+
+The good is always there. Warning. Giving wisdom against evil.
+
+Those shooters ignore the wise words of good.
+
+Why tho?
+
+Control. Power.
+
+One of the illusion that you get with resentment is a sense of control and power.
+
+What does good tell you?
+
+It is a lie. You actually lose control and power. You submit to impulse, evil desires, etc. That is not control but lost of it.
+
+Then the choice is given. Crossroads!
+
+The future shooter chooses to lose control with the illusion of control and power.
+
+Solution? Identifying, mapping, isolating, correcting.
+
+Gun control does not do anything.
+
+Even without guns when you desire to hurt your mind is consumed by it. All you think about is to hurt others. You will always find a way.
+
+The reason that people that are anti-gun think this will work is that they do not have the imagination of evil... They do not constantly think aout hurting. They are naive. Or they believe without a gun it will all go away. No it will not. Or they are evil and want good people without guns. Easier targets.
+
+They are a millions of ways to kill. A guy driving a truck in France murdered 80 people in no time flat. Banning trucks next?
+
+Anyways... Until we take mental health of our children seriously this will continue.
