@@ -71,3 +71,5 @@ That being said there is fourth type. But this type is seperate because of the i
 ## Child abuse
 - [[FR] Un cri dans le vide : Enfants de la DPJ - Documentaire 2004](https://www.youtube.com/watch?v=9htVUGBG0Ig)
 - [Signs of child abuse and how to spot it | ABC News](https://www.youtube.com/watch?v=5F5mBsxKCgc)
+- [Child of Rage - The Full Documentary](https://www.youtube.com/watch?v=2YhxerkkHUs)
+    - [Beth Thomas life story: What really happened to her and her siblings?](https://www.msn.com/en-xl/africa/other/beth-thomas-life-story-what-really-happened-to-her-and-her-siblings/ar-AAOv5ZH)
