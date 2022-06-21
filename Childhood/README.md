@@ -67,3 +67,7 @@ That being said there is fourth type. But this type is seperate because of the i
 > I might later on add a list of questions to ask to map out the social relationships
 
 > **NOTE:** I am very worried about the anti-bullying happening in our schools because most don't understand it and often the bully can be seen as the victim and the victim as the bully. I do not trust most to be able to determine this unless they have a good grasp of the subject. This can also be said for the work place.
+
+## Child abuse
+- [[FR] Un cri dans le vide : Enfants de la DPJ - Documentaire 2004](https://www.youtube.com/watch?v=9htVUGBG0Ig)
+- [Signs of child abuse and how to spot it | ABC News](https://www.youtube.com/watch?v=5F5mBsxKCgc)
